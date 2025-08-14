@@ -1,4 +1,3 @@
-# 💫 About Me:
 👋 Hello! I'm Sayyid
 
 
